@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @timmenpepper
+👋 Привет, я @timmenpepper
